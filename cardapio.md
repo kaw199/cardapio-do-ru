@@ -1,7 +1,7 @@
 # Cardápio do RU
 
 ## Segunda
-- Baião de dois 
+- Buchada de bode
 - 
 
 ## Terça
